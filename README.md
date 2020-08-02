@@ -1,0 +1,1 @@
+# Inflation-adjusted-average-annual-growth-rate
